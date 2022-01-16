@@ -1,2 +1,2 @@
-# soul-38
-iafeb8efybwefefbvq97wfbwefnwefijnefief
+# P-38
+juego del fantasma muy divertido y entretenido
